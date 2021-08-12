@@ -3,7 +3,7 @@
 ### Ingredientes
 
 - 4 colheres de sopa de maisena
-- 6 colheres de sopa de chocolate em pó
+- 6 colheres de sopa de chocolate liquido
 - 1 gema
 - 1 l de leite
 - 1 lata de leite condensado
